@@ -1,6 +1,6 @@
 <div align="center">
 
-# ✨ Shisha Detox
+# 🧪 Shisha Detox
 
 **Ürün Tanıtım · Ürün Tanıtım Sitesi**
 
